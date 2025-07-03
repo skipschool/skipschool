@@ -1,2 +1,1 @@
-## SkipSchool
-https://skipschool.lol
+## SkipSchool<br>https://skipschool.lol
