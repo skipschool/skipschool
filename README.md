@@ -1,0 +1,2 @@
+## SkipSchool
+https://skipschool.lol
